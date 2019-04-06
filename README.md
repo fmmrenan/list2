@@ -1,1 +1,1 @@
-https://fmmrenan.github.io/list2/
+https://fmmrenan.github.io/list2/lista2/coisos/
